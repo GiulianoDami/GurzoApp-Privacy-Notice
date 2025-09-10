@@ -1,0 +1,1 @@
+# GurzoApp-Privacy-Notice
